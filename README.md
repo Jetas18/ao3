@@ -10,7 +10,7 @@ were just seeking release. Pathetic. Did they have no other thoughts?
 
 As I pulled out a diary overflowing with sticky notes in all colors of the rainbow, I
 started to note my thoughts. I know that precisely this is the reason I have no friends...
-but at least I have you, and you are more than enough.
+But at least I have you, and you are more than enough even if you are just my imagination and not real.
 
 My attention focused on the door to our classroom. Another hormonal-driven husk
 entered. They had a name. They had a face. They had hobbies, likes, and dislikes. I
@@ -77,12 +77,12 @@ best friend, and no one truly cared about the other. At least, that was how it w
 
 Silence. Just silence. They obviously didn't know how to rebuke her with her frame tilted
 ever so slightly forward, her arms crossed. She knew she had won.
-"So... anyways," she continued in a diva's voice, "I am Oizys, thank you very much."
+"So... anyways," she continued in a diva's voice, "I am Keres, thank you very much."
 To top it all off, she clapped her hands, continuing further, full of revelry, "I really
 appreciate the warm welcome! I am your new classmate. People were just pathetic
 back there, but I realise now you are even more pathetic..."
 
-Oizys.... I know to most people that seem like just a name but it translates to the goddess of misery, anxiety, grief, depression, and misfortune, what a wonderful name I like it.
+Keres.... I know to most people that seem like just a name but it means the evil spirits in greek mythology, I kind of like that name.
 
 In contrast to her cheerful voice, the words 'pathetic' were uttered as if it were poison on her tongue.
 
