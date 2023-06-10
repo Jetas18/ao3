@@ -77,10 +77,12 @@ best friend, and no one truly cared about the other. At least, that was how it w
 
 Silence. Just silence. They obviously didn't know how to rebuke her with her frame tilted
 ever so slightly forward, her arms crossed. She knew she had won.
-"So... anyways," she continued in a diva's voice, "I am Sarena, thank you very much."
+"So... anyways," she continued in a diva's voice, "I am Oizys, thank you very much."
 To top it all off, she clapped her hands, continuing further, full of revelry, "I really
 appreciate the warm welcome! I am your new classmate. People were just pathetic
 back there, but I realise now you are even more pathetic..."
+
+Oizys.... I know to most people that seem like just a name but it translates to the goddess of misery, anxiety, grief, depression, and misfortune, what a wonderful name I like it.
 
 In contrast to her cheerful voice, the words 'pathetic' were uttered as if it were poison on her tongue.
 
@@ -105,4 +107,5 @@ Please don't let it be that way.
 
 She taps me on the shoulder, inquiring if our teacher is always this angry.
 I couldn't even respond for a solid few seconds as her visage overwhelmed me. What is wrong with me?
+
 I think I understand now, now that I am no longer in class. She isn't as pathetic as I've learned everyone else to be.
