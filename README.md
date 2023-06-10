@@ -1,57 +1,108 @@
-# Pathetic...
+# Chapter 1: I hate you... I think so
 
-### Chapter 1: I hate you.... I think so...
+#### Original by chuuya nakahara#0883
 
-_people_ they are pathetic in my opinion. They can't stop and are always desperate with desire.
+#### Rewritten and edited by Meiko#5196 under express permission
 
-"I bet you did something to make the history teacher give you that good you whore!" a girl in the class said as she I staring at her exam result.
+People. People are pathetic. It wasn't an insult, a slight, or a joke; no, I meant it. Their
+smiles, hollow, and that fire in their eyes? Crackling, smouldering, all-consuming. They
+were just seeking release. Pathetic. Did they have no other thoughts?
 
-Its so pathetic they are always filled with sexual desires **_sigh_**. Not being religious but they are just desperate for their sexual desires.
+As I pulled out a diary overflowing with sticky notes in all colors of the rainbow, I
+started to note my thoughts. I know that precisely this is the reason I have no friends...
+but at least I have you, and you are more than enough.
 
-**_I pull out a diary with sticky notes flowing from the corners as he starts to note his thoughts_** .
+My attention focused on the door to our classroom. Another hormonal-driven husk
+entered. They had a name. They had a face. They had hobbies, likes, and dislikes. I
+didn't care about any of that. To me, they were just static, characters that existed in
+movies to fill the otherwise devoid background, serving to create an illusion of reality.
 
-I know this is the reason I don't have friends but I don't think I need one I have you…
+The tired voice of our teacher came low, masked by the hubbub of trivial conversation.
+"You know, you people should at least pretend I am here, even if you idiots are all
+failures."
 
-**_The door to the classroom opens as everyone goes back to their seats still laughing as if thats the max they can do, just as pathetic as their sexual desires._**
+Sighing, I switched out my diary for my class notebook. As I navigated the pages,
+guided by my sticky notes, another distinct voice came, this time from outside the door.
+"Knock knock," it said playfully. It was that high-pitch voice I always associated with
+girls. She punctuated every 'knock' with a knock on the door.
 
-“You know you people should at least pretend I am here even if you idiots are failures.” I respect our class teacher Paul for this at least he accepts the fact that this class is just idiots and horny teenagers
+Of course, she couldn't enter; Paul always locked the door when he sauntered into class
+with his vast, brown suitcase with all sorts of documents and papers he had prepared
+for today's lessons. "Another late student," he proclaimed. Paul paused before
+continuing in a much more authoritative voice, "Why not consider coming to class on
+time? Maybe you won't find the door locked, then!"
 
-**_I keep back my diary in my bag and brings out my class note book almost identical to the situation my diary was in overflowing with sticky notes…_**
+His behavior seemed quite hostile and demeaning, but all teachers I knew were like
+that. They just came here, did their job, and thought they were oh so much better than
+us students.
 
-“knock knock!” **_the voice comes from outside the classroom as someone with a girly voice is knocking the door that is locked as usual because of the stupid class rules._**
+Paul fixed us all in a gaze; some conversation stopped while others carried on
+undeterred, unrepenting, uncaring. "Please open your books to page 76; today, we'll
+be starting a new topic. Namely—"
 
-“another late student as usual **_there is a pause before he says in a loud and strict voice_** why not consider coming to the class early next time and maybe you won’t find the door closed!”
+He didn't get a chance to finish his thoughts, however, as loud muttering came outside
+one of the windows opened to the hallway.
 
-He was right but that’s just usual teacher shit everyone gives just so boring.
+A student my age swung inside with surprising grace. I contemplated what lunatic this
+now is who enters from the opened window, but that is when I heard his voice. I realized
+it wasn't a 'him' at all, but a 'her'! It was the very same voice from outside the door
+moment prior. Nothing besides her voice gave it away, really. With long, black
+sweatpants and our blue school uniform, which covered her arms to the wrist, you
+wouldn't be able to tell her gender. Her face was mischievous, with a devious smirk, as
+if she knew a joke no one else did. Whatever they were, they would provide me with
+material to bitch about for the rest of the year. What else could they be but a pain in the
+arse? Yet, I did have to respect her defiance. She had guts.
 
-**_The window to the class suddenly thuds as it is opened by the student outside as Derek moves his head to see who is the asshole who he is going to add to his long hating list_**
+Paul, meanwhile, appeared as a boiling kettle, his face red, his brows furrowed. I've
+never seen him this angry before, and what shocked me even more was that he threw—
+yes, he fucking threw!—his mobile at her.
 
-“Sorryyyy but I don’t care about the stupid taunts maybe next time be more polite alright?” She seems annoying but I have to agree she does have guts to enter the class like this on first day but I don't think she is a girl… She is wearing a full pant and a full sleeved school uniform, so another horny guy getting added to the class as usual and another person I will bitch about to you for the entire year such a pain in the ass.
+Yet, with serpentine grace, she swayed out of the mobile's trajectory. An ear-shattering
+crack was heard as it impacted against the opposite wall, becoming undone, splintering
+into hundreds of glassen shards. Who was she to move like that?
 
-**_Paul is boiling with anger how I know you ask? because HE JUST THREW HIS FUCKING MOBILE PHONE AT HER!! She for some god like reflexes just walks away from it as the mobile goes out of the window and shatters at the hallway_**
+In an act of rebellion, she addressed Paul with that shit-eating grin of hers. "Oh, come
+on~! You can be a bit more polite than that!" She put her hands to her cheeks, pouting.
+"Oh my! I'm soooo sorry; I didn't introduce myself yet. I am—"
 
-“Oh come on you can be more polite than that!! **_She says as she pouts_** Oh my I didn’t introduce my self so hey everyone I am-" **_A guy at the back of the class room shouts_**
+Someone shouted from the back, stealing her thunder. "Someone who nobody cares
+about!" Several of his friends began to chime in, laughing and mocking.
 
-“Someone who no one cares about!” Not gonna judge him for that to be honest he is right no one really cares deep inside, everyone just pretends like they listen that they love you but the truth is exactly like he said ‘No one cares who you are’. there is a wave of laughter as everyone is laughing at the new guy who just joined our class in a pretty unique way.
+I couldn't judge him for those words. I learned early in life that no matter their
+pretentious facades, they all care about themselves at the end of the day. They may tell
+you, nay, assure you, they'd be there for you, but they really aren't. Everyone is his own
+best friend, and no one truly cared about the other. At least, that was how it was here.
 
-“Awww thank you for sharing the first words your dad thought when your mom asked ‘Who will he become when he grows up’ and looks like you cared enough to respond to me!"
+"Oh? Is that how your father refers to you? Thank you for telling us."
 
-**_Silence.. there is only silence after that the new guy is the only one who has a smile on his face_**
+Silence. Just silence. They obviously didn't know how to rebuke her with her frame tilted
+ever so slightly forward, her arms crossed. She knew she had won.
+"So... anyways," she continued in a diva's voice, "I am Sarena, thank you very much."
+To top it all off, she clapped her hands, continuing further, full of revelry, "I really
+appreciate the warm welcome! I am your new classmate. People were just pathetic
+back there, but I realise now you are even more pathetic..."
 
-That wasn't a good comeback in my opinion but yeah it was good enough to silence these horny humans in the class.
+In contrast to her cheerful voice, the words 'pathetic' were uttered as if it were poison on her tongue.
 
-“Anywayssss just like I was saying I am Sarena thank you everyone for the warm welcome! **_she says as she claps both her hands together tilting her to the right with a smile_** and continuing I am your new classmate and I have taken a transfer here recently because people were pathetic where I used to be but here I realize they are even more pathetic”
+It may seem mean to anyone else, but I had to admit, her calling the others pathetic made me appreciate her.
+That's the most attractive thing I have ever heard about anyone's personality.
 
-**_Derek turns his head towards Serena as she completes_** maybe she won’t be in my hate list I think after what she just said _People are pathetic_ that’s the most attractive thing I have got to know yet about anyone's personality..
+More so, she walked toward me, slapping her hand squarely on my back.
+"Hello~! You seem the least pathetic of them all."
+Apparently, she had judged me worth, or at least not as unworthy, and decided to sit beside me, putting her bag next to her chair.
 
-She is walking towards me now.. **_Sarena slaps her hand on my back_** "Helloo! You seem the least pathetic out of everyone in the class!" **_She keeps her bag on the chair next to me and sits there_** I wonder how she is still alive after that entry..
+Paul still broiled, but his face clearly stated, 'I don't get paid enough for this shit'.
+To confirm that notion, he said as much, then, afterwards, he just taught what he originally intended, integrals. I did hate math, truth be told.
 
-Paul is still looking really angry but he sighs and says, "I don't get paid enough for this do whatever the fuck you want to do"
+The class continued to snicker and laugh all throughout, but my gaze was as if blinded,
+and my ears as if deaf. All my senses circled back to her, as she was the one and only focal point for me.
+Her blue eyes were like vast oceans I lost myself in.
+She made me
+feel warm inside without her even looking at me.
+What was this?
+Was I becoming like them? I hope not.
+Please don't let it be that way.
 
-"Thank youuu!"
-
-Paul goes back to teaching I don't know why but I can't seem to look at the board today... I can't look away from how beautiful she looks. There is muffled screams and laughs in the class but I just can't seem to be bothered by them. I have this strange feeling on my skin, it- it feels like the sun is right over my skin it doesn't burn but its just so warm. What is this feeling? Please tell me I am not becoming a cliche like the others in that class please....
-
-She suddenly pats me on the shoulder and whispers to me, "Hey Paul always this angry?" She wasn't wrong I never realized but he has always been like this just angry and shouting. I just nod at her I don't even know if I am looking at her right now I.. Don't have any idea what is wrong with me.
-
-I think she understood because she started to write in her notebook. She isn't pathetic....
+She taps me on the shoulder, inquiring if our teacher is always this angry.
+I couldn't even respond for a solid few seconds as her visage overwhelmed me. What is wrong with me?
+I think I understand now, now that I am no longer in class. She isn't as pathetic as I've learned everyone else to be.
