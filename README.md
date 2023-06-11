@@ -7,7 +7,7 @@ were just seeking release. Pathetic. Did they have no other thoughts?
 
 As I pulled out a diary overflowing with sticky notes in all colors of the rainbow, I
 started to note my thoughts. I know that precisely this is the reason I have no friends...
-But at least I have you, and you are more than enough even if you are just my imagination and not real.
+But at least I have you, and you are more than enough for me.
 
 My attention focused on the door to our classroom. Another hormonal-driven husk
 entered. They had a name. They had a face. They had hobbies, likes, and dislikes. I

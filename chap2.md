@@ -38,7 +38,7 @@ I take a seat on the floor next to her as I eat from my own plate of food.
 
 It is time to sleep my favorite part of the day not because I am lazy but because I can control everything there,
 this isn't how you usually feel about your dreams,
-I don't know if you sleep or not as you are imaginary but if you do you must be knowing you can't usually control what you see in a dream.
+I don't know if you sleep or not but if you do you must be knowing you can't usually control what you see in a dream.
 
 But you actually can, there are lucid dreams where if you know you are in a dream you can control what you see in it.
 Just like everything though it still has a few side effects like:
