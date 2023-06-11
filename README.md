@@ -1,8 +1,5 @@
 # Chapter 1: I hate you... I think so
 
-#### Original by chuuya nakahara#0883
-
-#### Rewritten and edited by Meiko#5196 under express permission
 
 People. People are pathetic. It wasn't an insult, a slight, or a joke; no, I meant it. Their
 smiles, hollow, and that fire in their eyes? Crackling, smouldering, all-consuming. They
